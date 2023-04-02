@@ -1,4 +1,4 @@
-## Olá, Eu sou o Brenosouz09
+## Olá, Eu sou o Brenosouza09
 
 - 🌱 Hoje eu estudo Front-end
 - 
